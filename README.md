@@ -1,14 +1,14 @@
 - ## 🙂 Hi, I’m [Bennet Schachler](https://www.sac.on.ca/)
 - ### I’m interested in
   - Hockey
-  - Football
- 
-  - 
+  - BTD 6 mobile
+  
 - I’m currently learning how to use GitHub
 - I’m looking to collaborate on GitHub
-- [Instagram](https://www.instagram.com/bennet_sch35/?hl=de)
+- 
+- [Reach me on Instagram](https://www.instagram.com/bennet_sch35/?hl=de)
   
-- ⚡ Fun fact: I think speed limits are for
+- ⚡ Fun fact: I think speed limits are for bad drivers.
   
 ![My absolute genius School photo](https://dxbhsrqyrr690.cloudfront.net/sidearm.nextgen.sites/standrewscol.sidearmsports.com/images/2023/9/18/Schachler_Bennet_Grade_11.jpg)
 <!---
