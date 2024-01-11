@@ -5,7 +5,7 @@
   
 - I’m currently learning how to use GitHub
 - I’m looking to collaborate on GitHub
-- 
+  
 - [Reach me on Instagram](https://www.instagram.com/bennet_sch35/?hl=de)
   
 - ⚡ Fun fact: I think speed limits are for bad drivers.
